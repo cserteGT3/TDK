@@ -1,2 +1,2 @@
 # TDK
-My TDK research
+My TDK research (I didn't finish it.)
